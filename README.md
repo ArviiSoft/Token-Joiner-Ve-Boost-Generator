@@ -5,6 +5,8 @@
 
 # 💵・Hatalarla Uğraşmak İstemiyorsanız Satın Alabilirsiniz
 https://www.itemsatis.com/discord/token-joiner-boost-generator-1790534.html
+
+https://www.itempazar.com/discord-uye-nitro-sunucu/token-joiner-boost-generator-116380
 # 
 #
 
